@@ -1,0 +1,1 @@
+- Lecture 2: https://docs.google.com/presentation/d/1WNN6GS-BM62BUfyJD3lbgCYE25eT0Ugo2SbSsSevDL4/edit#slide=id.gb496d71350_0_108
